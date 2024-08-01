@@ -1,6 +1,6 @@
 # Webmyne Systems Pvt Ltd.
 
-we’re more than just a software development company; we’re your strategic partner for digital success. With over two decades of history, we’ve consistently delivered innovative solutions to clients worldwide. Here’s what sets us apart:
+We’re more than just a software development company; we’re your strategic partner for digital success. With over two decades of history, we’ve consistently delivered innovative solutions to clients worldwide. Here’s what sets us apart:
 
 ✅ 100% Job Success (Client Satisfaction Ratio)
 
